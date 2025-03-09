@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently focusing on data science and machine learning<br>👯 I’m looking to collaborate with peoplee<br>🌱 I’m looking for opportunities to learn
+I'm currently focusing on data science and machine learning, always eager to deepen my knowledge and skills. I'm looking for opportunities to collaborate with like-minded individuals and work on exciting projects. Open to learning new things and growing in the field!
 
 
 ## 🌐 Socials:
